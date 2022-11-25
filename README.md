@@ -1,6 +1,6 @@
 Juego de memoria
 
-Yalahuma Alexis Agustín
+Yalahuma Alexis Agustín y Mamani Rojas Jancel Gabriel
 
 7º 1º Aviónica
 
